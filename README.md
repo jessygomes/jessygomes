@@ -6,4 +6,4 @@ Fan of music, I listen to it a lot and I produce sounds for artists when I have 
 
 I'm working on small projects at the moment but I intend to level up and create what comes out of my imagination!
 
-You can contact me via Instagram @inthe_gleam !
+You can contact me via Instagram @inthe_gleam or mail inthegleam@protonmail.com 
