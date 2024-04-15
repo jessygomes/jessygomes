@@ -8,4 +8,4 @@ I'm working on small projects at the moment but I intend to level up and create 
 
 My portfolio : [https://portfolio-git-master-jessygomes-projects.vercel.app?_vercel_share=1C26XpDqwj00SPSzKERPzl9uQUm2qORC](https://portfolio-v1-one-ashy.vercel.app/)
 
-You can contact me via Instagram @inthe_gleam or mail inthegleam@protonmail.com 
+You can contact me via Instagram @inthe_gleam or mail inthegleam01@gmail.com 
